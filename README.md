@@ -6,7 +6,7 @@
 
 🤖 Home automation nerd (my lights have more logic than some apps)
 
-✈️ Points & miles obsessed - balling on a budget since 2024
+✈️ Points & miles obsessed - over $30,000 of free travel since 2022! 
 
 🔶⚔️ UVA sports fan (Go Hoos!)
 
