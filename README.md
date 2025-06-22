@@ -2,9 +2,9 @@
 
 📊 Data Analyst by day, homelab tinkerer by night
 
-🏠 Self-hosting everything because why trust the cloud?
+🏠 Self-hoster
 
-🤖 Home automation nerd (my lights have more logic than some apps)
+🤖 Home automation nerd
 
 ✈️ Points & miles obsessed - over $30,000 of free travel since 2022! 
 
